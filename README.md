@@ -1,1 +1,1 @@
-https://ninthorion.github.io/rsschool-cv/cv
+https://ninethorion.github.io/rsschool-cv/
