@@ -1,6 +1,6 @@
 # Sluzhaev Dmitrii
 ## Contacts:
-- ### Phone: +7 951 677 37++
+- ### Phone: +7 951 677 3+++
 - ### E-mail: downofgit@gmail.com
 - ### Discord: onego#7830
 ## About myself:
